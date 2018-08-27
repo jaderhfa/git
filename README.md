@@ -1,1 +1,0 @@
-Jader Henrique Faria Amorim
